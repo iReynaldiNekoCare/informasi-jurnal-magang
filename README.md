@@ -1,0 +1,1 @@
+# informasi-jurnal-magang
